@@ -11,7 +11,7 @@ How Do I Activate My Trend Micro Antivirus Subscription Successfully?
    :alt: My Project Logo
    :width: 500px
    :align: center
-   :target: https://aclogportal.com/
+   :target: https://activation-key.net/
 ________________
 
 In a world where cyber threats continue to evolve, having strong antivirus protection is no longer optional—it’s a necessity. Trend Micro Antivirus is one of the most trusted names in cybersecurity, providing advanced protection against malware, ransomware, phishing scams, and identity theft. However, after purchasing your antivirus software, the most critical step is to activate your Trend Micro subscription to ensure you're fully protected and able to access premium features.
