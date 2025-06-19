@@ -1,4 +1,4 @@
-How Do I Activate My Trend Micro Antivirus Subscription Successfully?
+How to Activate My Trend Micro Antivirus Subscription Successfully?
 ============================================
 .
 .
